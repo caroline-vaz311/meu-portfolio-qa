@@ -36,4 +36,4 @@ Aqui estão os relatórios técnicos de falhas que identifiquei e estruturei uti
 
 ## 📫 Vamos nos conectar?
 Se você é recrutador, gestor ou profissional da área e quer acompanhar minha evolução:
-*   [Meu LinkedIn](www.linkedin.com/in/caroline-undefined-2bb952431)
+*   [Meu LinkedIn](https://www.linkedin.com/in/caroline-undefined-2bb952431/)
